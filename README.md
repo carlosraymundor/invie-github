@@ -1,2 +1,2 @@
 # invie-github
-Tus mejores guitarras invie-sibles by @CaRay
+Tus mejores guitarras invie-sibles by @CarlosRivera
